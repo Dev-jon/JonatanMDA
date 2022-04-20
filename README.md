@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **JavaScript, HTML, CSS, SQL, Node.JS**
 
-- ⚡ Fun fact **Oneye 😜**
+- ⚡ **Yeah 😜**
 
 <br><br>
 
